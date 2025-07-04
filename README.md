@@ -16,6 +16,6 @@ SEO方面，要在标题、描述、正文中自然融入“日本AV免费”以
 
 这样既能满足用户找免费日本AV的需求，又能被搜索引擎持续抓取，长期保持在首页甚至第一名。简单来说，内容多、更新快、体验好、优化细，才能真正做出效果。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd17 ）</span>
 
 
